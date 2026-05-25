@@ -1,4 +1,4 @@
-### Resumo Profissional do Conteúdo do Vídeo
+### Resumo do Conteúdo do Vídeo
 
 O vídeo apresenta uma análise histórica e econômica detalhada sobre o desafio brasileiro da hiperinflação nas décadas de 1980 e 1990, culminando no sucesso do Plano Real, liderado pelo Ministro da Fazenda Fernando Henrique Cardoso no governo Itamar Franco. A narrativa destaca aspectos políticos, fiscais, sociais e técnicos que marcaram esse processo de estabilização econômica, além de reflexões sobre a construção da democracia e os desafios futuros do Brasil.
 
