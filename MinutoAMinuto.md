@@ -1,13 +1,5 @@
 ### Sumário Detalhado
 
-- [00:00:00 ~ 00:01:43]  
-**Contextualização da Liberdade e Ativismo Social no Brasil**  
-Não existe sociedade livre sem pessoas livres, e não há liberdade sem responsabilidade. Ser livre significa ter poder de escolha. O movimento “Livres” se dedica a levar essa liberdade para quem mais precisa, através de ativismo, engajamento cívico e formação de lideranças, promovendo projetos de impacto social e defendendo políticas públicas eficazes para ampliar o poder de escolha dos cidadãos. A missão coletiva é construir um Brasil mais justo, motivando o espectador a se associar e participar do movimento.
-
-- [00:00:53 ~ 00:02:33]  
-**Chamada à Participação e Referências Históricas Iniciais à Economia Brasileira**  
-Incentiva o público a associar-se ao movimento “Livres” para acessar benefícios exclusivos. Segue-se menção histórica sobre os planos econômicos no Brasil, destacando a instabilidade econômica: o então ministro Fernando Henrique Cardoso anuncia um plano econômico dividido em três etapas, com a intenção clara de “vencer ou vencer” a crise inflacionária. São mencionadas a tentativa de reintrodução do cruzeiro como moeda nacional e o esforço para estabilização dos preços.
-
 - [00:02:10 ~ 00:06:09]  
 **Problemas Econômicos do Brasil nas Décadas Passadas: Crise e Hiperinflação**  
 O trecho destaca o contexto da grave crise econômica brasileira das décadas de 1980 e início dos 90. A economia era insustentável, marcada pela “década perdida” com recessão e hiperinflação, chegando a aumentos assustadores como o do preço do feijão, que chegou a subir 2.782%. A instabilidade econômica provocava uma corrida frenética para realizar compras logo após o pagamento dos salários, uma situação de estresse e histeria coletiva. A velocidade da vida econômica era dominada pela inflação acelerada, o que fazia o banco ser quase o único lugar para proteger o dinheiro que perdia valor rapidamente.
